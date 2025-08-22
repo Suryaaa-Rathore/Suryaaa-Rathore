@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Surya Pratap Singh Rathore
+- 👋 Hi, I’m SuryaPratap Singh Rathore
 - 📫 Contact E-mail:- rathoresurya21@gmail.com
 
 <!---
